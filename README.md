@@ -13,6 +13,8 @@
 
 - 📫 How to reach me **jayachandranvenkat@gmail.com**
 
+- 📄 Know about my experiences [https://docs.google.com/document/d/1-VxoV-e7TIN0I2HHDaW5QAl2bD8EmawW/edit?usp=drive_link&ouid=117610424419576986442&rtpof=true&sd=true](https://docs.google.com/document/d/1-VxoV-e7TIN0I2HHDaW5QAl2bD8EmawW/edit?usp=drive_link&ouid=117610424419576986442&rtpof=true&sd=true)
+
 - ⚡ Fun fact **Digital Arts**
 
 <h3 align="left">Connect with me:</h3>
